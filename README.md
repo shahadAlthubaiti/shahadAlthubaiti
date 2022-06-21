@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @shahadAlthubaiti
-- 👀 I’m interested in programming 
-- 🌱 I’m currently learning Computer science
+- 👀 I’m programmer
+- the founder of RAHAAL -> https://rahaal.appmoha.com/
 - 📫 How to reach me :
 -> email : shahadabduallah1999@gmail.com
 
